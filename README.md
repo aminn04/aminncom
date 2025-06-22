@@ -1,1 +1,1 @@
-# aminnali.net
+# aminnali.com
